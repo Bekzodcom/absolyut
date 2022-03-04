@@ -1,0 +1,2 @@
+# absolyut
+Absolyutniy fikr
